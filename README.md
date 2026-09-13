@@ -1,4 +1,4 @@
-# CV
+# Resume
 # Mahfuzur Rahman
 **Data Analyst | MIS Specialist | Excel & BI Automation Consultant**  
 📍 Seri Kembangan, Selangor, Malaysia | 📞 +60 17-4873305 | ✉️ mahfuz9191@gmail.com | 🔗 www.linkedin.com/in/mahfuz9191
